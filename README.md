@@ -1,2 +1,1 @@
-# Discord-Bot
-HI DISCORD LLOOOLOLOLLLLLOLOL
+rowan is bad at bedwars
