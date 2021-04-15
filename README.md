@@ -1,1 +1,1 @@
-# Discord-Bothi
+# Discord-Bot
